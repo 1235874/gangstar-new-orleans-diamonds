@@ -24,7 +24,6 @@ How to Use Gangstar New Orleans Hack Tool:
 - Enjoy getting diamonds for free of charge!
 
 GO HERE AND START HACK -- > <h3><a href="http://bit.ly/gangstar-new-orleans-diamonds">http://bit.ly/gangstar-new-orleans-diamonds</a></h3>
-
 ---tags---
 Gangstar New Orleans Hack
 Gangstar New Orleans Hack 2018
